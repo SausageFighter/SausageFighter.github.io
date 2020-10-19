@@ -4,7 +4,7 @@
 ## Viata pe Doua Roti
 
 Mai jos este o poza cu unul din motoarele mele preferate :D 
-[Link](https://www.youtube.com/watch?v=zZDsMpJuIXE)
+[piesa draguta](https://www.youtube.com/watch?v=zZDsMpJuIXE)
 
 ![Image](https://images.alphacoders.com/758/thumb-1920-758515.jpg)
 
